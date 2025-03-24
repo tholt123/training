@@ -1,1 +1,1 @@
-my name is teddy!!
+My name is Teddy!!
